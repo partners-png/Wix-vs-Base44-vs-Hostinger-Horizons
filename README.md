@@ -141,6 +141,7 @@ For pure vibe coding (AI generates your web app from a text prompt), both Horizo
 - 👉 [Hostinger Website Builder — code buildersnest](https://www.hostg.xyz/aff_c?offer_id=48&aff_id=223981&url_id=4827) | [Full guide](https://github.com/partners-png/Hostinger-Website-Builder-Coupon-Code)
 - 👉 [Hostinger Horizons — code vibecodersnest](https://www.hostg.xyz/aff_c?offer_id=1041&aff_id=223981&url_id=5395) | [Full guide](https://github.com/partners-png/Hostinger-Horizons-Coupon-Code)
 - 👉 [Base44 — best available discount](https://base44.pxf.io/c/6539388/2477538/25619?sharedid=git&trafcat=hp) | [Full guide](https://github.com/partners-png/Base44-Coupon-Code-2026)
+- 👉 [All No-Code Discount Codes 2026](https://github.com/partners-png/No-Code-Discount-Codes-2026) — every code in one place
 
 ---
 
